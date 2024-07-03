@@ -16,5 +16,15 @@
 🔄 Accept/Deny 
 ❓Random Spoof Number 
 💎 Much More! 
+
+BOT Price :
+
+1 Day - $15
+3 Day - $25
+1 Week - $50
+1 Month - $200
+
  
 🛒  Bot > https://t.me/hakefambot
+🛒Group : https://t.me/hakefamchat
+🛒Vouches : https://t.me/hakefamotp 
